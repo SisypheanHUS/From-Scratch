@@ -1,1 +1,2 @@
-# From-Scratch
+# From Scratch
+ONE MUST IMAGINE SISYPHUS'S HAPPY.
